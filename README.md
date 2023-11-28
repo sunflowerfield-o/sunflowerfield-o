@@ -5,8 +5,11 @@ hiiiiiiiii, you prolly arrived here from ponytown, so here is most basic info fo
 
 you can mostly find us 
 -splatoon area
+
 -rythm games area's
+
 -near docks
+
 -near spawn
 we are a **traumagenic** system, we dont support non-traumagenic systems.
 
