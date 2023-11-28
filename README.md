@@ -11,11 +11,13 @@ you can mostly find us
 -near docks
 
 -near spawn
+
 we are a **traumagenic** system, we dont support non-traumagenic systems.
 
 **we avoid discource, if you walk up to us and start talking bout some useless discource we are going to hide you.**
 other than that, feel free to talk to us, dont frq if we havent talked before, or if you are under the age of 14.
 
+note from ene: im pretty open for talking but i suck at smalltalk
 <!---
 sunflowerfield-o/sunflowerfield-o is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
