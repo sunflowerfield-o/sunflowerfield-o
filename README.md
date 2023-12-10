@@ -19,7 +19,8 @@ other than that, feel free to talk to us, dont frq if we havent talked before.
 
 
 note from ene: im pretty open for talking but i suck at smalltalk and i dislike being covered, i wont be salty but just try not to cover me
-<!---
-sunflowerfield-o/sunflowerfield-o is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+
+player id's (feel free to add, no need to ask)
+ensemble stars music(english):7851870411  
+JP project sekai: 426026430537310215
+Global project sekai: 416998792869793799
