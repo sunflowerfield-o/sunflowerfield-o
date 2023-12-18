@@ -18,8 +18,7 @@ hiiiiiiiii, you prolly arrived here from ponytown, so here is most basic info fo
 **we avoid discource, if you walk up to us and start talking bout some useless discource we are going to hide you.**
 other than that, feel free to talk to us, dont frq if we havent talked before.
 
-
-note from ene: im pretty open for talking but i suck at smalltalk and i dislike being covered, i wont be salty but just try not to cover me
+note from Necro: im a fictive of Takane, but me and Ene are diffrent alters.
 
 
 ## **player id's (feel free to add, no need to ask)** 
