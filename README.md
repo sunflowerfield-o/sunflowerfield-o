@@ -26,4 +26,4 @@ note from Len: Just dont be weird to me or use me as an argument in discource, o
 
 * JP project sekai: 426026430537310215
 
-* Global project sekai: 416998792869793799
+
